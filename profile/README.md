@@ -4,7 +4,7 @@ The mission of Panmoni is to build Crypto and Web3 products that facilitate acce
 
 We welcome your participation.
 
-💬 Chat about KoinFix and get updates on [Telegram](https://t.me/Panmoni).
+💬 Chat about Panmoni and get updates on [Telegram](https://t.me/Panmoni).
 
 🐦 Follow [@PanmoniCom](https://twitter.com/PanmoniCom) on Twitter.
 
