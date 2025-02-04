@@ -6,6 +6,6 @@ We welcome your participation.
 
 💬 Chat about Panmoni and get updates on [Telegram](https://t.me/Panmoni).
 
-🐦 Follow [@PanmoniCom](https://twitter.com/PanmoniCom) on Twitter.
+🐦 Follow [@PanmoniCom](https://x.com/PanmoniCom) on X.
 
 Visit the website at [www.panmoni.com](https://www.panmoni.com/).
